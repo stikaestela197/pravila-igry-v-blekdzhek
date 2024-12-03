@@ -1,0 +1,1 @@
+# pravila-igry-v-blekdzhek
